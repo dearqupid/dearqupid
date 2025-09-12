@@ -1,6 +1,5 @@
 ![1zgqx0](https://github.com/user-attachments/assets/6d931a9d-a844-4b06-9f61-df43c41d2ccc)
 ![sxpn4n](https://github.com/user-attachments/assets/5b1ca846-5189-4c32-a132-4628f8ccd322)
-![mdreh9](https://github.com/user-attachments/assets/4189f598-87aa-4dd2-b835-f1cc61fb586d)
 ![8afcffac](https://github.com/user-attachments/assets/76f99fe4-1734-4c97-9118-d39251273767)
 
 ![yippie](https://github.com/user-attachments/assets/3a603241-4224-4f3a-ad6d-ba400aadc891)
