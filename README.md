@@ -1,6 +1,7 @@
 
-<img width="551" height="146" alt="Untitled123_20250914143024" src="https://github.com/user-attachments/assets/f43d1600-9f3b-4c25-843b-c7c099c208d6" />
-YAYYY TYY POOKS
+<img width="551" height="146" alt="Untitled123_20250914143024" src="https://github.com/user-attachments/assets/355f78e0-412e-404d-b8f5-f42c422f985d" /> YAYY TYY POOKSSS
+
+
 ![1zgqx0](https://github.com/user-attachments/assets/6d931a9d-a844-4b06-9f61-df43c41d2ccc)
 ![sxpn4n](https://github.com/user-attachments/assets/5b1ca846-5189-4c32-a132-4628f8ccd322)
 ![8afcffac](https://github.com/user-attachments/assets/76f99fe4-1734-4c97-9118-d39251273767)
