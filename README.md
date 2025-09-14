@@ -1,6 +1,4 @@
 
-<img width="551" height="146" alt="Untitled123_20250914143024" src="https://github.com/user-attachments/assets/355f78e0-412e-404d-b8f5-f42c422f985d" /> YAYY TYY POOKSSS
-
 
 ![1zgqx0](https://github.com/user-attachments/assets/6d931a9d-a844-4b06-9f61-df43c41d2ccc)
 ![sxpn4n](https://github.com/user-attachments/assets/5b1ca846-5189-4c32-a132-4628f8ccd322)
@@ -9,6 +7,8 @@
 ![tumblr_6d6e97c2a15091b9a1c8e64c7165bb39_af7756a1_75](https://github.com/user-attachments/assets/e7ebbe47-b042-4867-936a-29f4603b842e)
 
 ![yippie](https://github.com/user-attachments/assets/3a603241-4224-4f3a-ad6d-ba400aadc891)
+
+[rentry](https://rentry.co/dear-qupid)    [sign ata!](https://qupid.atabook.org/)   [sign straw!](https://allmyletters.straw.page/)
 
 ![tumblr_d4e78019806448bd80681d0791cc4f50_1420e911_100](https://github.com/user-attachments/assets/b165ce05-044c-469d-9f3e-5e3b97f1ddb5)
 ![744c75ed](https://github.com/user-attachments/assets/fc7a0518-eb0e-4935-a368-e70bed659dcc)
