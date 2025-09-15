@@ -6,7 +6,7 @@ erm i'll make this look good one day..
 ![tumblr_d2d23f211f2a39869b20894fd837bbd3_2b050f2e_100](https://github.com/user-attachments/assets/7fb043bd-690e-44ff-8718-91f3b094a233)
 ![tumblr_6d6e97c2a15091b9a1c8e64c7165bb39_af7756a1_75](https://github.com/user-attachments/assets/e7ebbe47-b042-4867-936a-29f4603b842e)
 
-![yippie](https://github.com/user-attachments/assets/3a603241-4224-4f3a-ad6d-ba400aadc891)
+![ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/e8f08db7-0f5d-4ac3-8909-95f951165ff2)
 
 [rentry](https://rentry.co/dear-qupid) ✩ [sign ata!](https://qupid.atabook.org/) ✩   [sign straw!](https://allmyletters.straw.page/)
 
