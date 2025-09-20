@@ -7,7 +7,7 @@ erm i'll make this look good one day..
 
 ![ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/e8f08db7-0f5d-4ac3-8909-95f951165ff2)
 
-[rentry](https://rentry.co/dear-qupid) ✩ [sign ata!](https://qupid.atabook.org/) ✩   [sign straw!](https://allmyletters.straw.page/)
+[rentry](https://rentry.co/dear-qupid) ✩ [sign ata!](https://qupid.atabook.org/)
 
 ![tumblr_d4e78019806448bd80681d0791cc4f50_1420e911_100](https://github.com/user-attachments/assets/b165ce05-044c-469d-9f3e-5e3b97f1ddb5)
 ![744c75ed](https://github.com/user-attachments/assets/fc7a0518-eb0e-4935-a368-e70bed659dcc)
