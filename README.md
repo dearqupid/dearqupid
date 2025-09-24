@@ -14,7 +14,6 @@ erm i'll make this look good one day..
 <img width="101" height="57" alt="Tumblr-l-279941495797636" src="https://github.com/user-attachments/assets/6739f80d-953f-4de5-98e8-374b69d6e269" />
 ![dark-8](https://github.com/user-attachments/assets/69494431-e416-4280-b5c2-bae0e76822a7)
 ![68cc9349b58eb1cbcb01d0c7bbd0f70cebd34b91-gifv](https://github.com/user-attachments/assets/cdc6048f-e15a-45aa-aa9a-61550b89b6db)
-<img width="99" height="56" alt="Tumblr-l-113806728763772" src="https://github.com/user-attachments/assets/f58a6ff5-b42c-4c82-8d57-3f26a2c621cd" />
 ![shenhe-genshin-impact](https://github.com/user-attachments/assets/856e9bf5-da18-41be-80fe-507812157d5e)
 <img width="99" height="56" alt="dexmw8x-4a27355b-9663-43d4-add9-1fd62094239c" src="https://github.com/user-attachments/assets/15483202-e8bd-4b22-9138-7236c71a42a3" />
 <img width="99" height="55" alt="8ea1b8dc-f2ac-4a1f-8295-be37d1f10d09" src="https://github.com/user-attachments/assets/fee1c85c-6c6e-4e97-b838-17c7a93aa2e0" />
