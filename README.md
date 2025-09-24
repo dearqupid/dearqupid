@@ -4,7 +4,7 @@ erm i'll make this look good one day..
 
 <img width="546" height="304" alt="Screenshot 2025-09-24 130205" src="https://github.com/user-attachments/assets/7431d405-adef-45a2-8838-9dbc7c26c538" />
 
-[rentry](https://rentry.co/dear-qupid) ✩ [sign ata!](https://qupid.atabook.org/) ✩ [sign straw!](https://allmyletters.straw.page)
+[rentry](https://rentry.co/martyroftheabyss) ✩ [sign ata!](https://qupid.atabook.org/) ✩ [sign straw!](https://allmyletters.straw.page)
 
 <details>
   <summary>stamp/blinkie collection i cant stop</summary>
