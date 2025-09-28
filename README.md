@@ -1,8 +1,7 @@
 erm i'll make this look good one day..
 
+<img width="466" height="310" alt="Screenshot 2025-09-28 141854" src="https://github.com/user-attachments/assets/228142f2-2e73-4f5f-adaf-8cfd0c247f2e" />
 
-
-<img width="546" height="304" alt="Screenshot 2025-09-24 130205" src="https://github.com/user-attachments/assets/7431d405-adef-45a2-8838-9dbc7c26c538" />
 
 [rentry](https://rentry.co/martyroftheabyss) ✩ [sign ata!](https://qupid.atabook.org/) ✩ [sign straw!](https://allmyletters.straw.page)
 
