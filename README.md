@@ -1,11 +1,18 @@
 <div align="center">
+
+
+
+
+https://github.com/user-attachments/assets/3035cf14-10d6-42e2-b4af-e593de9a53d2
+
+
+
+
  
-![ezgif com-effects (4)](https://github.com/user-attachments/assets/ce32ddae-57bf-4f92-bd05-3af3e87431ff)
+[rentry](https://rentry.co/bloodagate) ‎‎ ‎‎‎‎‎[ata](https://qupid.atabook.org)   ‎‎‎[straw‎](https://bloodagate.straw.page) ‎‎‎‎ 
 
-[rentry](https://rentry.co/bloodagate) ‎‎ ‎‎‎‎‎[ata](https://qupid.atabook.org)   ‎‎‎[straw‎](https://bloodagate.straw.page) ‎‎‎‎ [straw2](https://allmyletters.straw.page)
+<img width="86" height="15" alt="REBORN (1)" src="https://github.com/user-attachments/assets/167e6faa-240f-48a5-8901-d4bdbcf0d99c" />
 
-<img src="https://i.imgur.com/hroNXZ9.png" alt="Vampire (Blood drop)"> <img width="86" height="15" alt="UNDEAD (2)" src="https://github.com/user-attachments/assets/6f885c23-1ab8-4dee-ace4-ee53f1618d2b" /> 
-<img width="86" height="15" alt="coffin_dweller" src="https://github.com/user-attachments/assets/acdbfd44-3243-4d72-884a-bdf0ed1150f7" />
 
 </div>
 
