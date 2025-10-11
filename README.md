@@ -2,7 +2,7 @@
 
 <img width="86" height="15" alt="REBORN (1)" src="https://github.com/user-attachments/assets/167e6faa-240f-48a5-8901-d4bdbcf0d99c" />
 
-[rentry](https://rentry.co/bloodagate) ‎‎‎‎‎‎‎[ata](https://qupid.atabook.org)   ‎‎‎[straw‎](https://martyroftheabyss.straw.page) ‎‎‎‎ 
+[rentry]((https://rentry.co/martyroftheabyss) ‎‎‎‎‎‎‎[ata](https://qupid.atabook.org)   ‎‎‎[straw‎](https://martyroftheabyss.straw.page) ‎‎‎‎ 
 
 
 
