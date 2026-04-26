@@ -1,9 +1,12 @@
 <div align="center">
 
 [daily click](https://arab.org)   and [more +](https://wearethechange.carrd.co)
- 
 
-[rentry](https://rentry.co/ophelian) • [ata that i lost access to gulp](https://qupid.atabook.org) • [guns](https://guns.lol/dearqupid)
+ $\color{#F7ABCFFF}{\textsf{━}}$ $\color{#F7ABCFFF}{\textsf{━}}$ $\color{#ffedbd}{\textsf{━}}$  $\color{#ffedbd}{\textsf{ꔫ}}$ $\color{#ffedbd}{\textsf{━}}$ $\color{#a88872}{\textsf{━}}$ $\color{#a88872}{\textsf{━}}$ 
+  
+
+[rentry](https://rentry.co/ophelian) $\color{#F7ABCFFF}{\textsf{•}}$  [ata that i lost access to gulp](https://qupid.atabook.org) $\color{#F7ABCFFF}{\textsf{•}}$ [guns](https://guns.lol/dearqupid)
+
 
 
 
